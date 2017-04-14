@@ -1,1 +1,0 @@
-# bashanator.github.io
